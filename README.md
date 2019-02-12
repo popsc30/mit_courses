@@ -1,4 +1,4 @@
-### Leve 6 Courses Summary
+### All Leve 6 Courses description
 
 #### Mandatory basic courses  
 
